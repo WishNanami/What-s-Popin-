@@ -23,7 +23,7 @@ khaki + grey/black
 dark green + black
 
 
-trends right now:
+whats trending right now:
 layerd clothing (winter and fall)
 flowy dresses with straw hats (summer and spring)
 bold shapes and color (to express yourself)
